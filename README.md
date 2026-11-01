@@ -25,7 +25,7 @@ I come from a design background (Higher Technician in Illustration and a Master'
 
 ### 🌍 Languages
 
-Spanish (native) · English (advanced - C1)
+Spanish (native) · English (C1 – Cambridge C1 Advanced)
 
 ### 📫 Contact
 
